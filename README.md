@@ -1,1 +1,1 @@
-# Gantz
+# Ganz
